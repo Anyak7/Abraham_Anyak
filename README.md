@@ -12,3 +12,6 @@ MIT student
 Communtication | Time management
 
 Basketball | Swimming
+
+I also possess great basketball skills where I usually play powerfoward given my great height of **6'5ft**
+
